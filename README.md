@@ -12,7 +12,7 @@
 
 - 👨‍💻 All of my projects are available at **[My Portfolio](https://github.com/JamshaidKhalid)**
 
-- ⚡ Fun fact **Gym Passionate**
+- ⚡ Gym rat **I don't sweat, I sparkle.**
 
 ## 🚀 Languages and Tools:
 
